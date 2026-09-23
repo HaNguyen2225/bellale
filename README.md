@@ -1,7 +1,7 @@
 
 <div align="center">
 
-# 👋 Hi, I'm Bella
+# 👋 Hi, I'm Sophia Pham
 
 ### 🚀 Senior HRTA | Lead Tech Recruiter | AI & Technology Talent Acquisition
 
